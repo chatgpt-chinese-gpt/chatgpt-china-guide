@@ -1,5 +1,3 @@
-# ChatGPT 中文版 | ChatGPT官网 最新使用指南，内含GPT4，GPT4o，GPT o1使用技巧【2025年4月】
-
 # ChatGPT 中文版 | ChatGPT官网 最新使用指南，内含GPT4，GPT4o，GPT o1使用技巧【2025年6月】
 
 > **更新时间： 2025/05/29**        
